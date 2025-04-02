@@ -1,1 +1,1 @@
-OUR website is under construction
+OUR website is under developement
